@@ -1,1 +1,1 @@
-# feed-the-bunny.github.io.
+# feed-the-bunny.github.io
